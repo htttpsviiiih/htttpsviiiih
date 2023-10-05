@@ -7,7 +7,7 @@
 
 -> Estou cursando o técnico em desenvolvimento de sistemas integrado ao ensino medio, que foi oferecido pelo Instituto Federal do Paraná, em foz do iguaçu.
 
-->⚡Fato curioso: As comidas que são associadas a animais normalmente não são saudáveis para eles🤯
+-> Fato curioso: As comidas que são associadas a animais normalmente não são saudáveis para eles🤯
 
 
 
