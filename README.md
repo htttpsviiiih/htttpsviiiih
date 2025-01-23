@@ -1,5 +1,5 @@
 # euaquitlgd?
-Cursando Tecnico em desenvolvimento de sistemas no IFPR 2/4<br>16 anos  22/01/08<br><br>"Hand, hands getting cold<br>Losing feeling is getting old<br>Was I made from a broken mold?"
+Cursando Tecnico em desenvolvimento de sistemas no IFPR 2/4<br>17 anos  22/01/08<br><br>"Hand, hands getting cold<br>Losing feeling is getting old<br>Was I made from a broken mold?"
 
 
 ## 🌐 Socials:
